@@ -1,14 +1,11 @@
-- 👋 Hi, I’m @kpessou-kougblenou
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-
-<!---
-kpessou-kougblenou/kpessou-kougblenou is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
-I go to middle schol.
+- 👋 Hi, I’m Esther-kougblenou.K
+- 👀 I’m interested in Art, Music, Fashion
+- 🌱 I’m currently learning, How to create blog and websites and also how to be a succeful advocates in the future
+- 💞️ I’m looking to collaborate on with the world and make a change in the world, and shoe people to be goo ect.
+- 📫 How to reach me kougblenouesther1@gmail.com
 I try to help other people as possible as  can
 I got in PG county school
-Email me at kpessou-kougblenou@pgcps.org,  or estherkpessou@gmail.com if you have any question 
---->
+Email me at or estherkpessou@gmail.com if you have any question
+Iam looking forward to beign and advocates in the future who can bring justice to everyone who needs help.
+As a Girl I want to make a difference in today worlds. I want to help people in the future who are suffering ect...
+Thank byou 
